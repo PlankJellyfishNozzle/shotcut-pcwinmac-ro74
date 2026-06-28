@@ -1,4 +1,4 @@
-# 
+# Exclusivo Shotcut plugins para Mac OS | Inteligente Shotcut plugins para PC Windows. Con edición multitrack y mezcla de audio — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
